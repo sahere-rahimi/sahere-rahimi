@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sahere-rahimi
 - 👀 I’m interested in presenting my ass to strangers.
-- 🌱 I’m currently learning seducing rich boys.
+- 🌱 I’m currently learning best ways to seduce rich boys.
 - 💞️ I’m looking to collaborate on starting s.e.x parties
 - 📫 How to reach me ...
 
