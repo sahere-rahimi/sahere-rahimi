@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @sahere-rahimi
-- 👀 I’m interested in presenting my ass to strangers.
-- 🌱 I’m currently learning best ways to seduce rich boys.
-- 💞️ I’m looking to collaborate on starting s.e.x parties
-- 📫 How to reach me ...
+- 👀 I’m interested in learning cloud technologies.
+- 🌱 I’m currently learning best ways to migrating to cloud platforms.
+- 💞️ I’m looking to collaborate on cloud security projects.
+- 📫 How to reach me: sahere.rahimi.baboli@gmail.com
 
 <!---
 sahere-rahimi/sahere-rahimi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
